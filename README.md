@@ -1,0 +1,1 @@
+https://www.figma.com/proto/zKrbhayGa7zDZ4thBbJcjG/digital-menu?node-id=44-100&p=f&t=bb7GGbTKHr36DUqI-1&scaling=scale-down&content-scaling=fixed&page-id=0%3A1&starting-point-node-id=44%3A100&show-proto-sidebar=1
